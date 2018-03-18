@@ -1,7 +1,7 @@
 # Table of Contents
 
-* [Stories](#Stories)
-* [Poems](#Poems)
+* [Stories](#stories)
+* [Poems](#poems)
 
 # Stories
 
