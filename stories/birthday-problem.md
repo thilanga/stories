@@ -14,4 +14,4 @@ When they arrived at Reggie’s castle, they dressed up as Reggie’s goblins. T
 
 Reggie told that no one remembers his birthday and he was born on the same day as Lila. Then Lila had an idea. They didn’t have to celebrate just one birthday; they could celebrate Reggie’s also. Then everyone went to the mice’s house and helped re-decorate. When it was time to blow out candles, Reggie told Lila a secret. He told Lila that he wants to be her best friend. A few days later, Reggie came to live with the mice and they all lived happily ever after.
 
--- By: Kiara Pitigala
+-- By: Kiara Pitigala (2018)

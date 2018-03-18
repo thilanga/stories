@@ -8,4 +8,4 @@ He went to America, Spain, Japan, and Antarctica and all over the world. While h
 
 When he got home, he stopped feeling so queasy and his tingly feeling went away too. When he saw his mom, he ran to her and gave her a hug. Then he realised that his destiny is not to be found in somewhere else and it is to be found within him.
 
--- By: Kiara Pitigala
+-- By: Kiara Pitigala (2018)
