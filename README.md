@@ -5,7 +5,7 @@
 
 # Stories
 
-* Birthday Problem
+* [Birthday Problem](./stories/birthday-problem.md)
 * [Destiny](./stories/destiny.md)
 
 # Poems
