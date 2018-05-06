@@ -6,7 +6,7 @@ So both cats went into the house and then they split up. Ginger went to the left
 
 So ginger quietly and calmly stepped into the room. “Well, well, well. Looks like we’ve got a visitor!” said the witch. Then Ginger quickly ran up to the ghost, swiped it with her paw and the ghost disappeared. Then the witch scolded at Ginger with rage. Pat got up his paw and scratched the witch on her arm.  The witch dropped Pat and then sent an army of vampires chasing the two cats out of the door.
 
-When they got out, vampires locked all the doors and windows. When Ginger looked at Pat, he was as white as a ghost. “What’s wrong?” asked Ginger. “Nnnn... Nothing” said Pat shockingly. Then Pat turned to Ginger and said, “I was only pretending to be brave and adventurous.” Then Ginger leaned in close to him and whispered “I was only pretending to be brave and adventurous too..”. Both cats laughed and from that day on, Pat never challenged Ginger again.
+When they got out, vampires locked all the doors and windows. When Ginger looked at Pat, he was as white as a ghost. “What’s wrong?” asked Ginger. “Nnnn... Nothing” said Pat shackingly. Then Pat turned to Ginger and said, “I was only pretending to be brave and adventurous.” Then Ginger leaned in close to him and whispered “I was only pretending to be brave and adventurous too..”. Both cats laughed and from that day on, Pat never challenged Ginger again.
 
 The end.
 
