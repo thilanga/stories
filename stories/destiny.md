@@ -1,6 +1,6 @@
 # Destiny
 
-Once upon a time, there was a boy named Billy. Billy always had a tingly feeling in him. He asked his mom what that feeling meant. You need to find your distiny, she said.
+Once upon a time, there was a boy named Billy. Billy always had a tingly feeling in him. He asked his mom what that feeling meant. You need to find your destiny, she said.
 
 Because his mom said to find, Billy thought he really needed to leave home to find his destiny. So he packed up his things and set off on a journey in his little boat.
 
